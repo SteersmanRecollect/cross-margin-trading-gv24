@@ -1,4 +1,4 @@
-# 
+# Get the ultimate cross-margin trading bot with exclusive cross-margin trading bot Strategy | stop-loss + slippage-control. Featuring stop-loss and slippage-control, it's the best
 
 
 
